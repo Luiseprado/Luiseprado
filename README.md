@@ -1,16 +1,30 @@
-### Hi there 👋
+Salve o tricolor paulista
+Amado clube brasileiro
+Tu és forte, tu és grande
+Dentre os grandes és o primeiro
+Tu és forte, tu és grande
+Dentre os grandes és o primeiro
+Ó tricolor
+Clube bem amado
+As tuas glórias
+Vêm do passado
+Ó tricolor
+Clube bem amado
+As tuas glórias
+Vêm do passado
+São teus guias brasileiros
+Que te amam ternamente
+De São Paulo tens o nome
+Que ostentas dignamente
+De São Paulo tens o nome
+Que ostentas dignamente
+Ó tricolor
+Clube bem amado
+As tuas glórias
+Vêm do passado
+Ó tricolor
+Clube bem amado
+As tuas glórias
+Vêm do passado
 
-<!--
-**Luiseprado/Luiseprado** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://media.tenor.com/wOJwgMFz2nIAAAAd/calleri-jocalleri.gif)
